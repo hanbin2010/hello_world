@@ -1,2 +1,2 @@
 # hello_world
-tutorial
+I want many money
